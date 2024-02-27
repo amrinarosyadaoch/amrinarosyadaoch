@@ -5,7 +5,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on Micro, Macro Massive at Infinite Learning
-- 😄 Pronouns: https://www.instagram.com/amrinarosyada._
+- 😄 Pronouns: https://www.instagram.com/amrinarosyada._/
 - ⚡ Fun fact: I like money
 
 <!---
